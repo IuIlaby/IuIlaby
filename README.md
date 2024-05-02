@@ -1,16 +1,25 @@
-### Hi there 👋
+<p align="center">
+<img src="https://files.catbox.moe/j3mbh6.gif"/>
+</p>
+<p align="center">
+$\text{"Ainda vejo o luar, Refletido na areia".}$
+</p>
+<p align="center">
+<img src="https://64.media.tumblr.com/afb873ec18cb49ff027c675e6c9c6a43/89345c0ce524fc36-6e/s540x810/c66fefb480ebddb52011f582e04fea0e1981f3dd.png"/>
 
-<!--
-**bloody-cherry/bloody-cherry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
 
-Here are some ideas to get you started:
+</p>
+<p align="center">
+$${\color{#7c4848} MAD/REI }$$ 
+</p>
+<p align="center">
+$\text{SHE/ANY PRONOUS ― POLISH.}$
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/j3mbh6.gif"/>
+</p>
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  [GRAPHIC](https://www.tumblr.com/lavendergalactic/746230544372776960/arlecchino-rentry-graphics)
+</div>
