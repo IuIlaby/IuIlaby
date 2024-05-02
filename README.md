@@ -21,5 +21,5 @@ $\text{SHE/ANY PRONOUS ― POLISH.}$
 </p>
 <div align="center">
 
-  [GRAPHIC](https://www.tumblr.com/lavendergalactic/746230544372776960/arlecchino-rentry-graphics)
+  [GRAPHIC](https://www.tumblr.com/lavendergalactic/746230544372776960/arlecchino-rentry-graphics) ៸ [DRAW](https://drawme.share-on.me/lPHtNGyIlp) ៸ [GUESTBOOK](https://madraccoon.123guestbook.com)
 </div>
