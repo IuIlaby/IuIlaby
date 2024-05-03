@@ -5,7 +5,7 @@
 $\text{"Ainda vejo o luar, Refletido na areia".}$
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/1db1e7a99256b47431fa7018d194d262/85cc4433d07677f0-71/s500x750/3c4518fda5945de10846399668c110213e43dcd2.pnj"/>
+<img src="https://64.media.tumblr.com/ee0056104b75edb8bee9ef3aae38dfaf/fedcd47abc6935db-1a/s2048x3072/8104f7fff606dca7ef8ee7302a5c8c0e0093fa74.gifv"/>
 
 <p align="center">
 
