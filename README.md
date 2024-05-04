@@ -5,13 +5,13 @@
 $\text{"Ainda vejo o luar, Refletido na areia".}$
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/ee0056104b75edb8bee9ef3aae38dfaf/fedcd47abc6935db-1a/s2048x3072/8104f7fff606dca7ef8ee7302a5c8c0e0093fa74.gifv"/>
+<img src="https://64.media.tumblr.com/23201ac5cb0db36a3d4c3cc28c3a1977/tumblr_inline_pgu3deaWp91sr9by4_500.gifv"/>
 
 <p align="center">
 
 </p>
 <p align="center">
-$${\color{#d6b7ef} MAD/REI }$$ 
+$${\color{green} MAD/REI }$$ 
 </p>
 <p align="center">
 $\text{SHE/ANY PRONOUS ― POLISH.}$
