@@ -14,7 +14,7 @@ $\text{"Poranki nie są piękne, a życie jest do dupy".}$
 $${\color{#8c847a} MAD/REI }$$ 
 </p>
 <p align="center">
-$\text{SHE/ANY PRONOUS ― POLISH.}$
+$\text{ANY PRONOUS ― POLISH.}$
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/21hx0y.png"/>
