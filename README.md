@@ -33,7 +33,7 @@ $\text{ANY PRONOUS ― POLISH.}$
 </p>
 <div align="center">
 
-  [RETROSRPING](https://retrospring.net/@bloodycherryr) ៸ [RENTRY](rentry.co/bloodyrosess)
+  [RETROSRPING](https://retrospring.net/@bloodycherryr) ៸ [RENTRY](https://rentry.co/redrosess)
 </div>
 <p align="center">
 <img src="https://files.catbox.moe/liwzm8.png"/>
