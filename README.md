@@ -10,7 +10,7 @@ $$\color{#f3bb91}XAN \  ✦ . 　⁺ HE/HIM $$
 
 <div align="center">
 
-  [RENTRY](https://rentry.co/bufor)  ✦  [RETROSPRING](https://retrospring.net/@bloodycherryr) 
+  [RENTRY](https://rentry.co/bufor)  ✦  [RETROSPRING](https://retrospring.net/@bloodycherryyy) 
 <p align="center">
 <img src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s1280x1920/6f95cb38697fbf131637f4c1a8b625d9b372f3cf.gifv"/>
 </p>
