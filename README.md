@@ -5,12 +5,12 @@
 $$\color{#f3bb91}XAN \  ✦ . 　⁺ HE/HIM $$ 
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/95be972ed88a4bab674700df2aa8c162/dba775b37679fbca-10/s500x750/a96aeb7fb427515f06038eb7f4c6bb0b0d69d4d1.pnj"/>
+<img src="https://64.media.tumblr.com/10faeab59b82ad1871b6c9fc2abc0f38/68a5d54fba80ac48-17/s1280x1920/057527c30b5e84b1df9c0750845d29685a6dd273.pnj"/>
 </p>
 
 <div align="center">
 
-  [RENTRY](https://rentry.co/redrosess)  ✦  [RETROSPRING](https://retrospring.net/@bloodycherryyy) 
+  [RENTRY](https://rentry.co/redrosess)  ✦  [RETROSPRING](https://retrospring.net/@bloodycherryyy) ✦ [GRAPHIC CREDIT](https://www.tumblr.com/battampria/754225998350925824/magnoliawriters-editing-event)
 <p align="center">
 <img src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s1280x1920/6f95cb38697fbf131637f4c1a8b625d9b372f3cf.gifv"/>
 </p>
