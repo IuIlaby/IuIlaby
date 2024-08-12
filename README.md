@@ -10,7 +10,7 @@ $$\color{pink}XAN \  ✦ . 　⁺ HE/HIM $$
 
 <div align="center">
 
-[***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@bloodycherryyy)/[***ATABOOK***](https://lullaby.atabook.org)
+[***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@darkspace)/[***ATABOOK***](https://lullaby.atabook.org)
 <p align="center">
 <img src="https://64.media.tumblr.com/3f9a572d3421c1d6e7b16e055dd728f7/00b06e85e74d41b1-c2/s500x750/d3fe8da04412ce794bd07b215519983f04415618.pnj"/>
 </p>
