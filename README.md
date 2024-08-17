@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/ed4aa1ca40f516fa8f199d56abce9eed/ac5bebc96d6cbf69-6c/s400x600/2b3e2aa501f6c446efb36b287366880d8998e870.pnj"/>
+<img src="https://files.catbox.moe/am2tyu.png"/>
 </p>
 <p align="center">
 $$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$ 
@@ -12,6 +12,6 @@ $$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$
 
 [***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@darkspace)/[***ATABOOK***](https://lullaby.atabook.org)
 <p align="center">
-<img src="https://64.media.tumblr.com/ed4aa1ca40f516fa8f199d56abce9eed/ac5bebc96d6cbf69-6c/s400x600/2b3e2aa501f6c446efb36b287366880d8998e870.pnj"/>
+<img src="https://files.catbox.moe/0z3da4.png"/>
 </p>
 
