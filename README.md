@@ -1,17 +1,17 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/9b180e6bb95c76619d18f60905b3674a/00b06e85e74d41b1-4c/s500x750/967687f98abfa6a270e9767840a8130ff62561e4.pnj"/>
+<img src="https://64.media.tumblr.com/ed4aa1ca40f516fa8f199d56abce9eed/ac5bebc96d6cbf69-6c/s400x600/2b3e2aa501f6c446efb36b287366880d8998e870.pnj"/>
 </p>
 <p align="center">
-$$\color{pink}XAN \  ✦ . 　⁺ HE/HIM $$ 
+$$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$ 
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/c720a353c6cc487a6e63cf00c38b1d97/00b06e85e74d41b1-b7/s640x960/7b0a4adc5e3f938fd651a2d4af27b0ef564abe4d.pnj"/>
+<img src="https://64.media.tumblr.com/68378b1dd3dc46174de12564688d5c50/037ed6f8767dea16-1f/s640x960/bb0f0e4e04dbc4314d08a0e3caa21a17be1d25de.gifv"/>
 </p>
 
 <div align="center">
 
 [***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@darkspace)/[***ATABOOK***](https://lullaby.atabook.org)
 <p align="center">
-<img src="https://64.media.tumblr.com/3f9a572d3421c1d6e7b16e055dd728f7/00b06e85e74d41b1-c2/s500x750/d3fe8da04412ce794bd07b215519983f04415618.pnj"/>
+<img src="https://64.media.tumblr.com/ed4aa1ca40f516fa8f199d56abce9eed/ac5bebc96d6cbf69-6c/s400x600/2b3e2aa501f6c446efb36b287366880d8998e870.pnj"/>
 </p>
 
