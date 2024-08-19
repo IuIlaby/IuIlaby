@@ -1,8 +1,13 @@
 <p align="center">
-<img src="https://files.catbox.moe/5wvdyl.png"/>
+<img src="https://files.catbox.moe/f59m4r.png"/>
 </p>
+<div align="center">
+
+  **DIVIDERS BY nymphfrills ON TUMBLR**
+</p>
+
 <p align="center">
-$$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$ 
+  $$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$ 
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/gw8hdv.png"/>
@@ -12,6 +17,6 @@ $$\color{#ffeea7}XAN \  ✦ . 　⁺ HE/HIM $$
 
 [***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@darkspace)/[***ATABOOK***](https://lullaby.atabook.org)
 <p align="center">
-<img src="https://files.catbox.moe/8wvcdv.png"/>
+<img src="https://files.catbox.moe/nh6mqo.png"/>
 </p>
 
