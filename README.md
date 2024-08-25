@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@chibana)/[***ATABOOK***](https://lullaby.atabook.org)
+[***RENTRY***](https://rentry.co/weza)  ✦  [***RETROSPRING***](https://retrospring.net/@chibana)/[***ATABOOK***](https://mio.atabook.org)
 <p align="center">
 <img src="https://files.catbox.moe/nh6mqo.png"/>
 </p>
