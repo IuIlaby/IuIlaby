@@ -3,7 +3,9 @@
 ![](https://files.catbox.moe/5wvdyl.png)
 </p>
 
-<img src="https://files.catbox.moe/zrswe8.png"/>
+<p align="center">
+
+ <img src="https://files.catbox.moe/zrswe8.png"/>
 </p>
 
 <p align="center">
