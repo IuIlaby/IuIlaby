@@ -1,6 +1,6 @@
 <p align="center">
 
-![](https://files.catbox.moe/14p5pj.png‎) ![](https://files.catbox.moe/xpxfv8.gif)
+![](https://files.catbox.moe/14p5pj.png‎) ![](https://files.catbox.moe/gycoal.gif)
 </p>
 
 <p align="center">
