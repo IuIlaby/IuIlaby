@@ -1,19 +1,23 @@
 
+<p align="center">
 
-‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎![](https://files.catbox.moe/e20n3n.gif)
+  <img src="https://files.catbox.moe/tiloma.png"/>
 </p>
 
-
+<p align="center">散ってゆく花びらを眺めている
+<p align="center">手に持った風車
+<p align="center">回り続ける
 
 <p align="center">
 
- <img src="https://files.catbox.moe/kdz1yj.png"/>
+ <img src="https://files.catbox.moe/mzrt56.png"/>
 </p>
 
+<p align="center"> 
 
-<p align="center">
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  [![](https://files.catbox.moe/r1jo2y.png)](https://rentry.co/yuji-itadori)  [![](https://files.catbox.moe/ludrdq.png)](https://retrospring.net/@chibana)  [![](https://files.catbox.moe/o0p8dt.png)](https://mio.atabook.org) 
-</p>
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [![](https://files.catbox.moe/ljkdas.png)](https://rentry.co/mitsb) [![](https://files.catbox.moe/02zd49.png)](https://mafuyusatoo.straw.page) [![](https://files.catbox.moe/58okqw.png)](https://mio.atabook.org)
 ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+<p align="center">
+
+  <img src="https://files.catbox.moe/3bvey9.png"/>
+</p>
