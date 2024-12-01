@@ -8,4 +8,4 @@
 
 <p align="center"> 
 
-remaking, wip. [ata](https://mio.atabook.org) , [neo](https://neospring.org/@xan) , [strawpage](https://mafuyusatoo.straw.page)
+[![](https://files.catbox.moe/2nq29c.png)](https://mio.atabook.org) [![](https://files.catbox.moe/tdc38r.png)](https://mafuyusatoo.straw.page) [![](https://files.catbox.moe/umf7eq.png)](https://neospring.org/@xan)
