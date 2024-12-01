@@ -1,6 +1,6 @@
 
 
-
+gonna put on rentry soon i forgot about it
 <p align="center">
 
 ![](https://files.catbox.moe/h46pj7.png)
