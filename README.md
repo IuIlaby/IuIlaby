@@ -1,7 +1,7 @@
 ‎ ‎ ‎ ‎‎ ‎‎  ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎  ‎‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎‎  rentry is not mobile friendly
 <p align="center">
 
-![](https://files.catbox.moe/x9c9mh.png)
+![](https://files.catbox.moe/yrigmb.png)
 </p>
 
 <p align="center"> 
