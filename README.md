@@ -1,4 +1,4 @@
-‎ ‎ ‎ ‎‎ ‎‎  ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎  ‎‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎‎  rentry is not mobile friendly
+‎ ‎ ‎ ‎‎ ‎‎  ‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎‎  ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎‎  ‎ ‎ ‎ ‎‎ ‎‎  rentry is not mobile friendly
 <p align="center">
 
 ![](https://files.catbox.moe/yrigmb.png)
