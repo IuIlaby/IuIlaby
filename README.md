@@ -1,9 +1,9 @@
-‎ ‎ ‎ ‎‎ ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎‎ ‎‎  rentry is not mobile friendly
+‎ ‎ ‎ ‎‎ ‎‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎‎ ‎‎  everything there is a wip im slowly remaking everything
 <p align="center">
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ![](https://files.catbox.moe/6wrvjp.png)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ![](https://files.catbox.moe/ztyz2a.png)
 </p>
 
 <p align="center"> 
                                                                         
-‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎  [![](https://files.catbox.moe/meoneu.png)](https://mio.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![](https://files.catbox.moe/6ott27.png)](https://rentry.co/given)
+‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎  [rentry](https://rentry.co/given) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://mio.atabook.org)
